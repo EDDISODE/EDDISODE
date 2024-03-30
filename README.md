@@ -6,4 +6,4 @@
  
  *this changes constantly, my interests aren't always consistent*...i love to socialize and make friends of my many interests. *(mood depending)*
  
- **socials** [rblx](https://www.roblox.com/users/596682329/profile) [sptfy](https://open.spotify.com/user/69f95wt93wr0wh66ep0dhuqom?si=8074051ca7954af0) etc, *ask for* disc... ⎯ [art cred](https://twitter.com/tomtorddoodles)
+ **socials** [rblx](https://www.roblox.com/users/596682329/profile) [sptfy](https://open.spotify.com/user/69f95wt93wr0wh66ep0dhuqom?si=8074051ca7954af0) etc, *ask for* disc... ⎯ 
