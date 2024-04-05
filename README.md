@@ -9,7 +9,7 @@
   　　　　　　　　  　　　　　　　　  　　　　*current fixations are over eddsworld and fnaf.*
                                
  
- 　　　　　　　　  　　　　　　　　 　 *this changes constantly, my interests aren't always consistent*...
+ 　　　　　　　　  　　　　　　　　 　 *this changes constantly, my interests aren't always consistent*
  
   　　　　　　　　  　　　　　　　　
  
