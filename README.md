@@ -4,11 +4,13 @@
 </p>
 
 
- ₊˚ˑ༄ؘ  , **ponytown info**:
-1/25 🎂 [♡](https://github.com/sou-rce)  call me [sally](https://en.pronouns.page/@sallywilliams) or **[aubrey](https://pronouns.cc/@lizzygrant)**, whatever fits...
- current fixations are over eddsworld and fnaf. 
+ 　　　　　　　　  　　　　　　　　  　　　　　 ₊˚ˑ༄ؘ   [♡](https://github.com/sou-rce)  call me [sally](https://en.pronouns.page/@sallywilliams) or **[aubrey](https://pronouns.cc/@lizzygrant)**, whatever fits...
  
- *this changes constantly, my interests aren't always consistent*...i love to socialize and make friends of my many interests. *(mood depending)*
+  　　　　　　　　  　　　　　　　　  　　　　*current fixations are over eddsworld and fnaf.*
+                               
  
- **socials** [rblx](https://www.roblox.com/users/596682329/profile) [sptfy](https://open.spotify.com/user/69f95wt93wr0wh66ep0dhuqom?si=8074051ca7954af0) etc, *ask for* disc... ⎯ [no clue who made the art srry :(]()
-
+ 　　　　　　　　  　　　　　　　　  　 *this changes constantly, my interests aren't always consistent*...
+ 
+  　　　　　　　　  　　　　　　　　
+ 
+ 　　　　　　　　  　　　　　　　　  　　　　　 
