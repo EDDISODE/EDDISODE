@@ -4,12 +4,12 @@
 </p>
 
 
- 　　　　　　　　  　　　　　　　　  　　　　　 ₊˚ˑ༄ؘ   [♡](https://github.com/sou-rce)  call me [sally](https://en.pronouns.page/@sallywilliams) or **[aubrey](https://pronouns.cc/@lizzygrant)**, whatever fits...
+ 　　　　　　　　  　　　　　　　　  　　　　₊˚ˑ༄ؘ   [♡](https://github.com/sou-rce)  call me [sally](https://en.pronouns.page/@sallywilliams) or **[aubrey](https://pronouns.cc/@lizzygrant)**, whatever fits...
  
   　　　　　　　　  　　　　　　　　  　　　　*current fixations are over eddsworld and fnaf.*
                                
  
- 　　　　　　　　  　　　　　　　　  　 *this changes constantly, my interests aren't always consistent*...
+ 　　　　　　　　  　　　　　　　　 　 *this changes constantly, my interests aren't always consistent*...
  
   　　　　　　　　  　　　　　　　　
  
