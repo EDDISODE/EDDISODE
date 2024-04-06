@@ -4,14 +4,13 @@
 </p>
 
 
- 　　　　　　　　  　　　　　　　　  　　　　₊˚ˑ༄ؘ   [♡](https://github.com/sou-rce)  call me [sally](https://en.pronouns.page/@sallywilliams) or **[aubrey](https://pronouns.cc/@lizzygrant)**, whatever fits...
+<div align="center">
+<div align="center">
+₊˚ˑ༄ؘ  .   call me sally or aubrey, whatever fits!  </div>
+　current fixations are over eddsworld and fnaf!!
+    
  
-  　　　　　　　　  　　　　　　　　  　　　　*current fixations are over eddsworld and fnaf.*
-                               
- 
- 　　　　　　　　  　　　　　　　　　 *this changes constantly, my interests aren't always consistent*
-                    
-　  　　　　　　　　 　　  　　　　　  　　　　　　　  　    [guestbook](https://faubreze.123guestbook.com/) & [rentry](https://rentry.co/kel-brey)
+[guestbook](https://faubreze.123guestbook.com/) & [rentry](https://rentry.co/kel-brey)
  
   　　　　　　　　  　　　　　　　　
  
