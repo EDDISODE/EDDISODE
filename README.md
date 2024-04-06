@@ -9,9 +9,9 @@
   　　　　　　　　  　　　　　　　　  　　　　*current fixations are over eddsworld and fnaf.*
                                
  
- 　　　　　　　　  　　　　　　　　 　 *this changes constantly, my interests aren't always consistent*
+ 　　　　　　　　  　　　　　　　　　　 *this changes constantly, my interests aren't always consistent*
                     
-　  　　　　　　　　 　　  　　　　　  　　　　　　　　  [guestbook](https://faubreze.123guestbook.com/) & [rentry](https://rentry.co/kel-brey)
+　  　　　　　　　　 　　  　　　　　  　　　　　　　　 　 [guestbook](https://faubreze.123guestbook.com/) & [rentry](https://rentry.co/kel-brey)
  
   　　　　　　　　  　　　　　　　　
  
