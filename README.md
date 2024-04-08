@@ -10,7 +10,7 @@
 　current fixations are over eddsworld and fnaf!!
     
  
-[guestbook](https://faubreze.123guestbook.com/) & [rentry](https://rentry.co/kel-brey)
+[guestbook](https://faubreze.123guestbook.com/) & [rentry](https://rentry.co/nansee)
  
   　　　　　　　　  　　　　　　　　
  
