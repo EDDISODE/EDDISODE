@@ -6,7 +6,7 @@
 
 <div align="center">
 <div align="center">
- call me edd or aubrey, whatever fits!  </div>
+ call me ed or aubrey, whatever fits!  </div>
 　current fixations are over eddsworld and fnaf!!
     
  
