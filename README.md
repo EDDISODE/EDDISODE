@@ -7,7 +7,7 @@
 　current fixations are over eddsworld and fnaf!!
     
  
-[gb](https://faubreze.123guestbook.com/) [retrospring](https://retrospring.net/@eddsworld) & [rentry](https://rentry.co/nansee)
+[guestbook](https://baconcola.atabook.org/) [retrospring](https://retrospring.net/@eddsworld) & [rentry](https://rentry.co/nansee)
  
   　　　　　　　　  　　　　　　　　
  
