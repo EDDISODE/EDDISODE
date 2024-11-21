@@ -7,7 +7,7 @@
     
     
  
-[guestbook](https://baconcola.atabook.org/) [retrospring](https://retrospring.net/@carlgrimes) & [rentry](https://rentry.co/keigo-takami)
+[guestbook](https://baconcola.atabook.org/) [retrospring](https://retrospring.net/@carlgrimes) & [rentry](https://rentry.co/anya-)
  
   　　　　　　　　  　　　　　　　　
  
